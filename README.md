@@ -1,1 +1,1 @@
-The cake is a lie
+Cake is the best desert ever!
